@@ -3,8 +3,7 @@
 
 | ![65f97560f06e2_com playgendary bowmasters](https://github.com/user-attachments/assets/2940ad08-ec1e-4cef-8428-f4f42dc2e159) | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/bowmaster-apk/)  |
 |:-------------------------------------------------:|-----------------------|
-| Platform: Unlimited Coins                      | Version: 
-6.8.2    |
+| Platform: Unlimited Coins                      | Version: 6.8.2    |
 | size: 254.21 Mb                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
 | Latest Update: 17/12/2024                      | Category : Action |
 
